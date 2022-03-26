@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @PavelHardtkt
 - 👀 I’m interested in Music
-- 🌱 I’m currently learning Biologo Science
+- 🌱 I’m currently learning Biology Science
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
